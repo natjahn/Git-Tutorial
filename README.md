@@ -5,7 +5,7 @@ If this is not being done live or you liked to read the instructions please clic
 
 ## Natalie
 
-- I have eaten crickets in a taco
+- I backpacked Japan solo for a month after graduating school!
 
 ## Partner Name Here
 
